@@ -6,3 +6,6 @@
 2. verdict on the investigation result
 3. Recommended Actions
 4. Points i learned + points i missed in the alert.
+
+
+🛡️ 🔵 🔴 📊 🕵🏻‍♀️ 💻 🚨 👨🏼‍💻 🔗 🎯 🔐 👁️
